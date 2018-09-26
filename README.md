@@ -1,1 +1,2 @@
-# BestMotherfuckingWebsit
+# BetterMotherfuckingWebsite
+ http://bettermotherfuckingwebsite.com/
